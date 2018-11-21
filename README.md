@@ -1,2 +1,2 @@
-Cristine Dela Cruz
+
 RESUME
